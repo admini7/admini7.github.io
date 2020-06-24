@@ -10,3 +10,4 @@
 Mein Name ist Friedrich M., männlich, kurz über 60 und seit kurzem Pensionist.
 Meine Hobbys sind Computer (jetzt ist Zeit) und Motorrad fahren.
 
+<img src="https://zsevxksbkezesr28.myfritz.net/nas/filelink.lua?id=eeb093e30a57412d>
